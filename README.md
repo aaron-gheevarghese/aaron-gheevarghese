@@ -38,4 +38,4 @@ Previously interned at **Toyota** (Connected Experiences) and **Gather**.
 
 ---
 
-[LinkedIn](https://www.linkedin.com/in/aarongheevarghese/) · [Resume](Aaron_Gheevarghese_Resume.pdf) · [Email](mailto:aaron.gheevar@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/aarongheevarghese/) · [Resume](Aaron_Gheevarghese_Resume.pdf) · aaron.gheevar@gmail.com
